@@ -1,2 +1,1 @@
-# nugiknugroho.github.io
-# ini kunam saya
+# nugiknugroho.gith
